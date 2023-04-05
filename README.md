@@ -1,1 +1,0 @@
-# pareidolies.github.io
